@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @9ron9es
-- 👀 I’m interested in full-stack
-- 🌱 I’m currently learning react.
+i hate what im doing
+i don't know why i'am doing all this bs
+but here we are
